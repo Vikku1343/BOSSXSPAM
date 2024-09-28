@@ -8,7 +8,7 @@ Mᴀɴᴀɢᴇᴅ Bʏ: [❤️ ♧ 𝐁 𝐨 𝐬 𝐬 ♧ ❤️](https://t.me/
   <img src="https://readme-typing-svg.herokuapp.com?color=F77247&width=420&lines=𝙰+𝚃𝚎𝚕𝚎𝚐𝚛𝚊𝚖+𝚂𝚙𝚊𝚖𝙱𝚘𝚝+𝙾𝚙𝚎𝚗+𝚂𝚘𝚞𝚛𝚌𝚎;𝚠𝚛𝚒𝚝𝚝𝚎𝚗+𝙸𝚗+Telethon%E2%9D%A4%EF%B8%8F">
 </p> 
 
-![logo](https://te.legra.ph/file/2e2f78610814092d61103.jpg)
+
 <a href="https://https://youtu.be/aPSeonItsWQ"><img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif"></a>
 
 # Hᴏsᴛɪɴɢ
